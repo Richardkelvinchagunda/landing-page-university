@@ -1,1 +1,1 @@
-no icon has been added only 
+no logo has been added only 
